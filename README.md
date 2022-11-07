@@ -1,4 +1,4 @@
-### Hey there, im
+### Hey there, i'm
 
 
 ![banner (1)](https://user-images.githubusercontent.com/23227549/197226212-c93bb741-3599-435f-8038-720cf9e76ce2.png)
